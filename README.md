@@ -1,2 +1,2 @@
 # ayuda por favor
-si esto no sale hago el bajitruco
+todo empezo hace mas de 50 años con un meteorito que cayo en un rincon aislado de okhlahoma el meteorito contenia un ser vivo el ser mas evolucionado el poder de SHADOW y su energia caos superaba por mucho a la de cualquier criatura el cientifico que lo descubrio creia que su poder marcaria una nueva era para la humanidad pero ese poder demostro ser muy peligroso el accidente destruyo el laboratorio y con el se perdieron vidas al jefe del proyecto se le culpo del incidente y fue arrestado al cancelarse el programa shadow se convirtio en un cabo suelto y nadie sabia que hacer con era demasiado peligroso para liberarlo y muy valioso para destruirlo asi que ordene ponerlo en estasis indefinidamente
